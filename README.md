@@ -1,3 +1,3 @@
 # Liivakast
 
-õpin
+enam ei õpi
